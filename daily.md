@@ -22,6 +22,8 @@
 - Reading few lines of some books
 - listening to music and calming the soul whilst exploring new ones
 - motivational video
+- headfirst Java and other series
+- Manga guide to databases
 - Read a bit about progit
 - 
 - maintaining clean wardrobe
