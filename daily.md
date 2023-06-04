@@ -29,7 +29,8 @@
 - Finding and on lookout of scholarships
 - reading some IELTS comprehensions aka reading sections
 - enjoying current life and gratitude
-- 
+- Read aloud daily
+- little bit of dumbbells everyday.
 - lunges and squats
 - 5 Spanish words
 - 2 new english words detailed usage
