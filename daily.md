@@ -18,7 +18,7 @@
 - cultivating patience - feasible?
 - Tweet daily
 - Adrian Bogdan's React tricks and tips book reading
-- 
+- 1 leetcode problem everyday
 - Reading few lines of some books
 - listening to music and calming the soul whilst exploring new ones
 - motivational video
