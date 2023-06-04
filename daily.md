@@ -16,6 +16,7 @@
 - 2 codewars questions
 - uninstall thoughts, habits, feelings that no longer ensure better self
 - cultivating patience - feasible?
+- Tweet daily
 - Reading few lines of some books
 - listening to music and calming the soul whilst exploring new ones
 - motivational video
