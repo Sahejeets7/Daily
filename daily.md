@@ -37,4 +37,7 @@
 
 ## Weekly
 - Posting a video - best football goals and some other automated one using ai
--
+- Blogging about new tech (fetching new info in efficient manner)
+- finance learning
+- Keeping up-to-date with new tech/ai in video editing domain to automate production of my ideas.
+- 
