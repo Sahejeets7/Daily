@@ -4,7 +4,7 @@
 - Stopping myself from getting irritated/annoyed so easily
 - Stopping myself from taking unncessary screenshots and hoarding info/data
 - Taking stock of my fears
-- Listening to a few select songs - JayKode - Release (Feat. Tima Dee) (320  kbps) (eMP3z.com) + dunkirk + I ain't worried and that movie scene + 
+- Listening to a few select songs - JayKode - Release (Feat. Tima Dee) (320  kbps) (eMP3z.com) + dunkirk + I ain't worried and that movie scene + Gary clark Travis county
 - keeping a habit tracker.
 - Watching Usain bolt's run from his movie and cr7's intro from his movie.
 - Strengthening the mind
