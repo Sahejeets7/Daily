@@ -1,0 +1,27 @@
+- planning on todoist
+- some life learning everyday
+- keeping a habit tracker
+- Strengthening the mind
+- planning for next day and week + weekend
+- pushups
+- Saying No to a few things
+- writing
+- uninstall thoughts, habits, feelings that no longer ensure better self
+- cultivating patience - feasible?
+- Reading few lines of some books
+- listening to music and calming the soul whilst exploring new ones
+- motivational video
+- maintaining clean wardrobe
+- Reading few lines of coding book, blogs and so on..
+- brushing 2 times
+- listing down questions and maintaining a track (delete if not feasible)
+- maintaing things organized
+- posting on LinkedIn - tech and some good uplifting thought
+- Running - a stretch goal
+- cr7 motivation for mind and soul - uplifting spirit
+- Recollecting some great memory by going through past photos and reliving the enjoyment
+-
+- lunges and squats
+- 5 Spanish words
+- 2 new english words detailed usage
+- 
