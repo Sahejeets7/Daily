@@ -17,6 +17,8 @@
 - uninstall thoughts, habits, feelings that no longer ensure better self
 - cultivating patience - feasible?
 - Tweet daily
+- Adrian Bogdan's React tricks and tips book reading
+- 
 - Reading few lines of some books
 - listening to music and calming the soul whilst exploring new ones
 - motivational video
