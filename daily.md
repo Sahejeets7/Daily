@@ -13,7 +13,7 @@
 - Saying No to a few things
 - writing
 - standup comedy and laughing everyday.
-- 
+- 2 codewars questions
 - uninstall thoughts, habits, feelings that no longer ensure better self
 - cultivating patience - feasible?
 - Reading few lines of some books
