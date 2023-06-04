@@ -5,7 +5,7 @@
 - Stopping myself from taking unncessary screenshots and hoarding info/data
 - Taking stock of my fears
 - Listening to a few select songs - JayKode - Release (Feat. Tima Dee) (320  kbps) (eMP3z.com) + dunkirk + 
-- keeping a habit tracker
+- keeping a habit tracker.
 - Watching Usain bolt's run from his movie and cr7's intro from his movie.
 - Strengthening the mind
 - planning for next day and week + weekend
