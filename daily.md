@@ -4,7 +4,7 @@
 - Stopping myself from getting irritated/annoyed so easily
 - Stopping myself from taking unncessary screenshots and hoarding info/data
 - Taking stock of my fears
-- 
+- Listening to a few select songs - JayKode - Release (Feat. Tima Dee) (320  kbps) (eMP3z.com) + 
 - keeping a habit tracker
 - Strengthening the mind
 - planning for next day and week + weekend
