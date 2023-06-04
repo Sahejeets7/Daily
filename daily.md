@@ -33,6 +33,8 @@
 - enjoying current life and gratitude
 - Read aloud daily
 - little bit of dumbbells everyday.
+- hackerrank js challenges
+- linkedin learning js saved course
 - lunges and squats
 - 5 Spanish words
 - 2 new english words detailed usage
