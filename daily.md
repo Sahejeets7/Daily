@@ -12,6 +12,8 @@
 - pushups
 - Saying No to a few things
 - writing
+- standup comedy and laughing everyday.
+- 
 - uninstall thoughts, habits, feelings that no longer ensure better self
 - cultivating patience - feasible?
 - Reading few lines of some books
