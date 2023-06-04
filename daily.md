@@ -20,7 +20,10 @@
 - Running - a stretch goal
 - cr7 motivation for mind and soul - uplifting spirit
 - Recollecting some great memory by going through past photos and reliving the enjoyment
--
+- Finding and on lookout of scholarships
+- reading some IELTS comprehensions aka reading sections
+- enjoying current life and gratitude
+- 
 - lunges and squats
 - 5 Spanish words
 - 2 new english words detailed usage
