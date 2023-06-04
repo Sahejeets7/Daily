@@ -20,6 +20,8 @@
 - Reading few lines of some books
 - listening to music and calming the soul whilst exploring new ones
 - motivational video
+- Read a bit about progit
+- 
 - maintaining clean wardrobe
 - Reading few lines of coding book, blogs and so on..
 - brushing 2 times
