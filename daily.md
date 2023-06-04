@@ -1,5 +1,10 @@
 - planning on todoist
 - some life learning everyday
+- Stopping myself from emotionally reacting
+- Stopping myself from getting irritated/annoyed so easily
+- Stopping myself from taking unncessary screenshots and hoarding info/data
+- Taking stock of my fears
+- 
 - keeping a habit tracker
 - Strengthening the mind
 - planning for next day and week + weekend
@@ -27,4 +32,8 @@
 - lunges and squats
 - 5 Spanish words
 - 2 new english words detailed usage
-- 
+
+
+## Weekly
+- Posting a video - best football goals and some other automated one using ai
+-
