@@ -45,6 +45,7 @@
 - lunges and squats
 - 5 Spanish words
 - 2 new english words detailed usage
+- go out for a bit
 
 
 ## Weekly
