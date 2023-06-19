@@ -1,5 +1,6 @@
 - planning on todoist
 - some life learning everyday
+- Read ebooks and highlight the important learnings
 - Stopping myself from emotionally reacting
 - Stopping myself from getting irritated/annoyed so easily
 - Stopping myself from taking unncessary screenshots and hoarding info/data
