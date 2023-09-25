@@ -2,6 +2,9 @@
 - some life learning everyday
 - Read ebooks and highlight the important learnings
 - Stopping myself from emotionally reacting
+- Codecrafters
+- UDemy
+- Jack Herrington 
 - Stopping myself from getting irritated/annoyed so easily
 - Stopping myself from taking unncessary screenshots and hoarding info/data
 - Taking stock of my fears
